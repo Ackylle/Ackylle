@@ -2,7 +2,7 @@
 
 
 
-I HATE GIRLSS!!!!
+tangina nyo 
 
 
 <!---
